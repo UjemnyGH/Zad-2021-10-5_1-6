@@ -1,0 +1,1 @@
+Zadania 1-6         informatyka
